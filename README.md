@@ -1,1 +1,1 @@
-# galaxytech2050.github.io
+# ChiQuan and LinhDan
