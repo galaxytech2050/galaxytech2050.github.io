@@ -1,1 +1,1 @@
-# ChiQuan and LinhDan
+# ChiQuan
